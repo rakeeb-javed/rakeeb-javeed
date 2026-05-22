@@ -61,7 +61,7 @@
 
 ## 📫 Connect With Me
 - 📧 Email: rakeebjaveed123@gmail.com  
-- 💼 LinkedIn: https://linkedin.com/in/yourprofile  
+- 💼 LinkedIn:   
 - 🌐 Portfolio: Coming Soon  
 
 ---
